@@ -1,2 +1,4 @@
 discord.gg/a44
-best ch4eats xd
+best c4heats
+best strafe settings
+best ac method
